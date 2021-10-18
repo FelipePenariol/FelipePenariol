@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FelipePenariol  , 19 anos . Universitário no IFSP , no curos de Analise e Desenvolvimento de Sistemas 
+- 👋 Hi, I’m @FelipePenariol  , 19 anos . Universitário no IFSP , no curso de Analise e Desenvolvimento de Sistemas.
 - 👀 I’m interested in  estágio 
 - 💞️ I’m looking  crescimento profissional 
 <!---
